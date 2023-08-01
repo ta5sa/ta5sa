@@ -1,0 +1,5 @@
+-🩹Oi! Meu nome é Taissa! Bem vindo ao meu perfil!
+-😊I'm very happy!
+-📸I love taking pictures!
+-💙I love my friends!
+-🌍Seja feliz não perfeita!
