@@ -3,3 +3,4 @@
 -📸I love taking pictures!
 -💙I love my friends!
 -🌍Seja feliz não perfeita!
+-🫀I love series
